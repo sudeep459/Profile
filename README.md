@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @minnu342
-- 👀 I’m interested in *everythig*
+- 👀 I’m interested in *everything*
 - 🌱 I’m currently learning *nothing*
 - 💞️ I’m looking to collaborate on *nothing*
 - 📫 How to reach me...
